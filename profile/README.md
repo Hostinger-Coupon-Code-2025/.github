@@ -35,4 +35,4 @@ Are you trying to find the most recent Hostinger coupons? You can save money on 
 
 Note: 20% Extra discount available only if you buy from above link. Codes and discounts may vary by region and are subject to availability.
 
-[For more info] (https://hostinger.in?REFERRALCODE=1KISMAT61)
+[For more info](https://hostinger.in?REFERRALCODE=1KISMAT61)
